@@ -24,7 +24,7 @@
 
 ### 📫 **Let’s Connect!**  
 📧 **Email:** shahriaremon964@gmail.com
-📱 **WhatsApp:** +88 01759137428
+📱 **WhatsApp:** [+88 01759137428](https://wa.me/8801759137428)
 ---
 
 > *“Data is the new oil, but only if you refine it.”*  
