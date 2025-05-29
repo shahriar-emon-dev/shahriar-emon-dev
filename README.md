@@ -20,7 +20,7 @@
 🎣 **Fishing** (when life gets too algorithmic)  
 🍳 **Cooking** (experimenting like a hyperparameter tuner)  
 ✈️ **Traveling** (because even models need fresh data)  
-👬 **Spending time with friends** (Shoutout to **Sakib** and **Nasim**—my inspiration squad!)  
+👬 **Spending time with friends** (Shoutout to **Sakib**!)  
 
 ### 📫 **Let’s Connect!**  
 📧 **Email:** shahriaremon964@gmail.com
